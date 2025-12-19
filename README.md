@@ -1,4 +1,4 @@
-### Hi there - this is me 👋 ... a over-caffeinated, and slightly nerdy individual juggling everything at once...
+### Hi there - this is me 👋 ... a over-caffeinated, and slightly nerdy individual juggling everything at once 😇
 
 - 🔭 I’m currently working on: trying to keep my head above water
 - 💬 Ask me about: the art of procrastination, I'm a pro
